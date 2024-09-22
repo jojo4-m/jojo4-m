@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @jojo4-m
 - 👀 I’m interested in codding ❤️
 - 🌱 I’m currently learning Data science 
-- 💞️ I’m looking to collaborate on everything that may make me grow 
+- 💞️ I’m looking to collaborate on everything that may makes me grow 
 - 📫 How to reach me mungaijoan04@gmail.com
 - 😄 Pronouns: her/she
 - ⚡ Fun fact: I'm not everything you expect 
